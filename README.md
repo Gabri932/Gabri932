@@ -1,5 +1,2 @@
 ⚽️
-
-![](https://media3.giphy.com/media/v1.Y2lkPTc5MGI3NjExZDN1enBwb2I3aWFwMTBuemY1YTZud3BobWVqcDQ1c2U4cXJpaDBrbiZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/S6dJse528X4MpfAWGE/giphy.webp)
-![](
-https://media1.giphy.com/media/v1.Y2lkPTc5MGI3NjExYW1rOWxtOWRrZHFlbm5namxxNWNoOHl1ZG41NDhxMGt4aXRxbjVjZiZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/KFuXeADlsfCFCoxfUB/giphy.webp)
+![](https://media4.giphy.com/media/v1.Y2lkPTc5MGI3NjExbjRydGoxeGU5cWw4MXYyczF1MG12NXdlMnh0aGkwM3M3enQ5ZnhndyZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/HMpcgxAZs5YYHsbe8P/giphy.webp)
